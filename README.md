@@ -107,5 +107,3 @@ this is the sanity where I can update and change the products and banner data
 ![App Screenshot](https://i.postimg.cc/ZnDVjBfv/image.png)
 
 Thank you for reading :).
-I watched two courses to help me finish this.
-‣摁敳癲湩੧
